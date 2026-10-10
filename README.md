@@ -6,5 +6,4 @@
 
 ---
 
-*Available for freelance & collaboration — feel free to reach out!*
-*Tersedia untuk freelance & kolaborasi — jangan ragu untuk menghubungi!*
+*Available for freelance & collaboration - feel free to reach out!*
