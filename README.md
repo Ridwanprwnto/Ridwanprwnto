@@ -6,4 +6,4 @@
 
 ---
 
-*Available for freelance & collaboration - feel free to reach out!*
+*Available for collaboration - feel free to reach out!*
